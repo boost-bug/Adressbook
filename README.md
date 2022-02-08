@@ -17,3 +17,5 @@ Arbereshflag:
 - Twitter: https://twitter.com/arbereshflag
 - Youtube: https://www.youtube.com/channel/UCxc7libVh8LtoIMXKarm_Vw
 
+E60guy101:
+- Youtube: https://www.youtube.com/channel/UC8s9jyEUakeEcSKzrj7D7jA
