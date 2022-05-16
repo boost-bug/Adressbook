@@ -3,6 +3,7 @@ Fishy Pug Bruh (Creator of this document):
 - Youtube: https://www.youtube.com/channel/UC_fMmKaJ-Z7Nds2dOJt1pAA
 - Discord: mathed potato#2978
 - Element: @fishy-pug-bruh:matrix.org
+- Neocities: https://fishypugbruh.neocities.org
 
 VAKE333 (AKA. Drift69):
 - Youtube: https://www.youtube.com/channel/UCgKTz9EMQ1CPpCSJv5Lj2-g
