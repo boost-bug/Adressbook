@@ -15,7 +15,7 @@ Midas777 (AKA. Penny And Fishy):
 - Youtube: https://www.youtube.com/channel/UCpH60hZ8iRGjIAjfqoD5qpQ
 
 Arbereshflag:
-- Twitter: https://twitter.com/arbereshflag
+- Twitter: https://twitter.com/arberesh_flag
 - Youtube: https://www.youtube.com/channel/UCxc7libVh8LtoIMXKarm_Vw
 
 E60guy101:
