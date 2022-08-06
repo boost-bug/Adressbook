@@ -6,9 +6,9 @@ Fishy Pug Bruh (Creator of this document):
 - XMPP: fpbtest@macaw.me
 - Neocities: https://fishypugbruh.neocities.org
 
-VAKE333 (AKA. Drift69):
+Drift69:
 - Youtube: https://www.youtube.com/channel/UCgKTz9EMQ1CPpCSJv5Lj2-g
-- Youtube Secondary: https://www.youtube.com/channel/UChtPXL9JUNsBsMBTyVGh05w
+- Youtube Secondary: https://www.youtube.com/channel/UCU_ndV3p-QNznq4GeQCXF1w
 - Discord: Vake333#7323
 
 Midas777 (AKA. Penny And Fishy):
